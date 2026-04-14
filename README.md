@@ -7,8 +7,8 @@
   <meta name="google-site-verification" content="1l_1pxEGqp2Fhjh7r0euoaO8n5E5lGl94EEccfYIxxs" />
   <title>TOGEL2WIN | Bandar Togel Online Resmi No.1 Login Secepat Kilat</title>
 <!-- Favicon -->
-  <link rel="icon" href="https://res.cloudinary.com/ddppr3m1w/image/upload/v1763376224/TOGEL2WIN-coy_tdeot3.jpg" type="image/x-icon">
-  <link rel="shortcut icon" href="https://res.cloudinary.com/ddppr3m1w/image/upload/v1763376224/TOGEL2WIN-coy_tdeot3.jpg" type="image/x-icon">
+  <link rel="icon" href="https://s13.gifyu.com/images/bqlU9.png" type="image/x-icon">
+  <link rel="shortcut icon" href="https://s13.gifyu.com/images/bqlU9.png" type="image/x-icon">
 <!-- Description -->
   <meta name="description" content="TOGEL2WIN adalah platform bandar toto macau resmi dengan layanan premium terpercaya, sistem stabil, dan akses aman yang nyaman digunakan di semua perangkat.">
 <!-- Preload Image -->
